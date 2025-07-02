@@ -1,1 +1,1 @@
-This was a group project by 2 people.
+This was a 2-person group project.
